@@ -1,1 +1,3 @@
 # my-first-work
+ar ki ki korbo?????
+bujhtasi na
